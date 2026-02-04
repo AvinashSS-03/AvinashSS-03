@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **avinashsathyakumar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1gs2tWI35JsDaevrmnBXp2zIGNrxLsxuy/view?usp=drive_link](https://drive.google.com/file/d/1gs2tWI35JsDaevrmnBXp2zIGNrxLsxuy/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1gs2tWI35JsDaevrmnBXp2zIGNrxLsxuy/view?usp=sharing](https://drive.google.com/file/d/1gs2tWI35JsDaevrmnBXp2zIGNrxLsxuy/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
